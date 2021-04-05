@@ -1,0 +1,1 @@
+*// 4/4 I will try to do logs everytime I work on this, probably gonna take me forever will the motivation that I have, but I'm here and willing to do whatever it takes. :)
